@@ -7,4 +7,4 @@ was betrayed by Geoffrey and sentenced to death.
 Joffrey Baratheon was the one to do Ned in, but his story was only about
 to begin, and let me assure you he will DEFINITELY NOT DIE!
 
-Ned shoulda kept the info to himself and lived
+Ned shoulda kept the info to himself and lived--Xander
